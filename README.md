@@ -1,6 +1,4 @@
-### working everyday to improve myself as a human being
-mostly following stoic philosophy  
-not a fan of the current society  
+### working everyday to improve myself as a human being 
 feel free to use my work for anything if its public  
 nothing else to see here 👻
 
